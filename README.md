@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding skills
 - 👉🏻 hoping to sweeze more in...
 - 💞️ I’m looking to collaborate on developing my journey
-- 📫 How to reach me on oottll@icloud.com
+- 📫 How to reach me on...(soon)
 - 😄 Pronouns: guess what...
 - ⚡ Fun fact: hmm hitting the ground standing
 
